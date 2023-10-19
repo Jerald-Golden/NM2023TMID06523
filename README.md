@@ -6,7 +6,7 @@ Hi, we're delighted to present our project along with our team.
 
 • Team Lead: Jerald Golden B
 
-• Team Member 1: Jenson y
+• Team Member 1: Jenson Y
 
 • Team Member 2: Ragul D
 
